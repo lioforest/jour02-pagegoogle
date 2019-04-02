@@ -1,5 +1,5 @@
 Lionel FOREST (lioforest)
-Roseline SOUKAMKIAN
+Roseline SOUKAMKIAN (Rhoseline)
 
 Bonjour bonjour !!! 
 C'est avec une immense joie que l'on vous envoie le fruit de notre sueur du jour !
